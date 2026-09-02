@@ -6,4 +6,5 @@
 # contact me
 
 # telegram: @elegalr1der
+## email: elegalr1der@proton.me
 https://t.me/elegalr1der
